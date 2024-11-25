@@ -1,7 +1,7 @@
 heyo im jazmine 
 
 rody soul , reigen arataka fkins 
-![](https://64.media.tumblr.com/f5549a97823bdf06b9947502d6fa441a/ed67aaf3e88875d6-4a/s1280x1920/9c4ce209a1412a16a76d24085504fb88ef0aa4d0.gifv)
+![](https://64.media.tumblr.com/dd00a614d18394b1459f55401f70929d/8815bc7fc0c4ae58-5a/s1280x1920/a82b94f04f148fbfb78fc969fb1d43ad89009807.pnj)
 
 [strawpage]( being remade ) and [rentry](https://rentry.co/smokedcatnip) 
 ADD ME ON DISCORD PPLEASE IM JAZSBERRY!
