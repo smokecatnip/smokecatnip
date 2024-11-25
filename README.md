@@ -2,7 +2,7 @@ heyo im jazmine ⊹ ࣪ ˖
 
 𐂯 rody soul , reigen arataka fkins 
 
-![](https://64.media.tumblr.com/dd00a614d18394b1459f55401f70929d/8815bc7fc0c4ae58-5a/s1280x1920/a82b94f04f148fbfb78fc969fb1d43ad89009807.pnj)
+![](https://64.media.tumblr.com/d0e844e607fd36dccdd7edf39d860e07/36622d5700332ab9-49/s500x750/4a055ed9462641b259c72aeac31bb13f214566af.gifv)
 
 ︶︶˖ + [wip]() ৲ [rentry](https://rentry.co/smokedcatnip)  >ᴗ< 
 
